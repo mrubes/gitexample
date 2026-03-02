@@ -1,1 +1,0 @@
-# Popis s více podrobnostmi 
